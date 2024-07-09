@@ -1,1 +1,5 @@
-|| S9NSK9R S!NGH X ANSH X SANDEEP | || FADDEB99Z - ( G||a||n||d ) Fadu Fighters B) <3 3:) =]]
+# T.S. BRAND
+# TRICKS-BY-SATISH
+https://youtu.be/sA6jmjtvSAU?si=EwvdvbSy-ROEGQin
+
+![Alt Text](https://i.imgur.com/GItqLpN.jpeg)
